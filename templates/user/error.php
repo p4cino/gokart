@@ -1,0 +1,1 @@
+Brak takiej strony
